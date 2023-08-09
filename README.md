@@ -1,0 +1,4 @@
+- 👋 Ola!, Eu sou @marionobrega
+- 👀 Estou interesado em aprender 
+- 🌱 Estou procurando crescer na área de Developer
+- 📫 Como me achar -> Instagram @_nobregaz_
